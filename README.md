@@ -1,1 +1,1 @@
-# Ster-k
+# Ster-Kinekor
